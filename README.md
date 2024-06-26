@@ -1,2 +1,12 @@
-
 ![1](https://github.com/Dharmanshuj/Python-Games/assets/124305189/6aec431e-eba0-4af0-830a-b34e85f639de)
+![2](https://github.com/Dharmanshuj/Python-Games/assets/124305189/d803a196-d7a9-45aa-bf75-2c9398455630)
+![3](https://github.com/Dharmanshuj/Python-Games/assets/124305189/d4c395d5-b3bd-42a3-adc5-248fd2922aa2)
+![4](https://github.com/Dharmanshuj/Python-Games/assets/124305189/4de7540b-489e-4fc2-bb04-4b507e701515)
+![5](https://github.com/Dharmanshuj/Python-Games/assets/124305189/6f5e5784-2e62-4719-85f1-e89b084496bf)
+![6](https://github.com/Dharmanshuj/Python-Games/assets/124305189/b242aa48-157b-443d-8797-09198f302821)
+![7](https://github.com/Dharmanshuj/Python-Games/assets/124305189/14931796-9281-4f7b-b2f3-f56bfe19d8fe)
+![8](https://github.com/Dharmanshuj/Python-Games/assets/124305189/c03157b4-c8e5-451a-ac59-84cecc59ec56)
+![9](https://github.com/Dharmanshuj/Python-Games/assets/124305189/30ac668b-7ba5-45a8-9033-a852114ac8a1)
+![10](https://github.com/Dharmanshuj/Python-Games/assets/124305189/6b067760-c9f7-4d9d-b324-a730dd40cf5c)
+![11](https://github.com/Dharmanshuj/Python-Games/assets/124305189/e5e4347e-8403-4245-aa41-ea893babb276)
+![12](https://github.com/Dharmanshuj/Python-Games/assets/124305189/e3254713-ee2e-4b3e-8bb0-4812a1559541)
